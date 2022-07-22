@@ -7,6 +7,6 @@ file size khup jast zali ahe so download it manually    ✔✔✔ 💔💔 ⏩�
 
 
 
-![Alt Text](https://media.giphy.com/media/HnJok73fzeROC4UzRC/giphy-downsized-large.gif)
+![Alt Text](https://media.giphy.com/media/p98Tedz4fppOt6xoMV/giphy-downsized-large.gif)
 
 
